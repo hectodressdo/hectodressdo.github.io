@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2015-10-18'
+title: "Daalarna FLW 956 Long Sleeves Sweep/Brush Train Sheath/Column"
+category: Daalarna 
+tags: [Daalarna ,Daalarna,Sheath/Column,V-neck,Sweep/Brush Train,Long Sleeves]
+---
+### Daalarna FLW 956
+Just **$336.98**
+###   Long Sleeves Sweep/Brush Train Sheath/Column 
+<table><tr><td>BRANDS</td><td>Daalarna</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
+<a href="https://www.antebrands.com/en/daalarna-/94972-daalarna-flw-956.html"><img src="//static.msromantic.com/245404/daalarna-flw-956.jpg" alt="Daalarna FLW 956" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.antebrands.com/en/daalarna-/94972-daalarna-flw-956.html"><img src="//static.msromantic.com/245403/daalarna-flw-956.jpg" alt="Daalarna FLW 956" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/daalarna-/94972-daalarna-flw-956.html](https://www.antebrands.com/en/daalarna-/94972-daalarna-flw-956.html)

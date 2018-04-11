@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2016-01-01'
+title: "Linea Raffaelli Collection precollection-16-17-resort Linea Raffaelli 
+LINEA RAFFAELLI KIDS 
+ LR - R16 - SET 066"
+category: Linea Raffaelli Collection precollection-16-17-resort
+tags: [Linea Raffaelli Collection precollection-16-17-resort]
+---
+### Linea Raffaelli Collection precollection-16-17-resort Linea Raffaelli 
+LINEA RAFFAELLI KIDS 
+ LR - R16 - SET 066
+Just **$299.99**
+### 
+
+<a href="https://www.antebrands.com/en/linea-raffaelli-collection-precollection-16-17-resort/91778-linea-raffaelli-linea-raffaelli-kids-lr-r16-set-066.html"><img src="//static.msromantic.com/238540/linea-raffaelli-linea-raffaelli-kids-lr-r16-set-066.jpg" alt="Linea Raffaelli 
+LINEA RAFFAELLI KIDS 
+ LR - R16 - SET 066" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.antebrands.com/en/linea-raffaelli-collection-precollection-16-17-resort/91778-linea-raffaelli-linea-raffaelli-kids-lr-r16-set-066.html](https://www.antebrands.com/en/linea-raffaelli-collection-precollection-16-17-resort/91778-linea-raffaelli-linea-raffaelli-kids-lr-r16-set-066.html)

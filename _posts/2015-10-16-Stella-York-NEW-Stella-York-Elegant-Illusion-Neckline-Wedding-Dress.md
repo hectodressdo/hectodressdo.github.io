@@ -1,0 +1,16 @@
+---
+layout: post
+date: '2015-10-16'
+title: "Stella York NEW Stella York Elegant Illusion Neckline Wedding Dress"
+category: Stella York NEW
+tags: [Stella York NEW]
+---
+### Stella York NEW Stella York Elegant Illusion Neckline Wedding Dress
+Just **$339.99**
+### 
+
+<a href="https://www.antebrands.com/en/stella-york-new/97305-stella-york-elegant-illusion-neckline-wedding-dress.html"><img src="//static.msromantic.com/250824/stella-york-elegant-illusion-neckline-wedding-dress.jpg" alt="Stella York Elegant Illusion Neckline Wedding Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.antebrands.com/en/stella-york-new/97305-stella-york-elegant-illusion-neckline-wedding-dress.html"><img src="//static.msromantic.com/250825/stella-york-elegant-illusion-neckline-wedding-dress.jpg" alt="Stella York Elegant Illusion Neckline Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/stella-york-new/97305-stella-york-elegant-illusion-neckline-wedding-dress.html"><img src="//static.msromantic.com/250823/stella-york-elegant-illusion-neckline-wedding-dress.jpg" alt="Stella York Elegant Illusion Neckline Wedding Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/stella-york-new/97305-stella-york-elegant-illusion-neckline-wedding-dress.html](https://www.antebrands.com/en/stella-york-new/97305-stella-york-elegant-illusion-neckline-wedding-dress.html)

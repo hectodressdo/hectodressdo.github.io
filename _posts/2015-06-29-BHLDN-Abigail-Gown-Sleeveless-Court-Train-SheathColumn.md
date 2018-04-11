@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2015-06-29'
+title: "BHLDN Abigail Gown Sleeveless Court Train Sheath/Column"
+category: BHLDN 
+tags: [BHLDN ,BHLDN,Sheath/Column,V-neck,Court Train,Sleeveless]
+---
+### BHLDN Abigail Gown
+Just **$379.99**
+###   Sleeveless Court Train Sheath/Column 
+<table><tr><td>BRANDS</td><td>BHLDN</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
+<a href="https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html"><img src="//static.msromantic.com/242268/bhldn-abigail-gown.jpg" alt="BHLDN Abigail Gown" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html"><img src="//static.msromantic.com/242269/bhldn-abigail-gown.jpg" alt="BHLDN Abigail Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html"><img src="//static.msromantic.com/242270/bhldn-abigail-gown.jpg" alt="BHLDN Abigail Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html"><img src="//static.msromantic.com/242271/bhldn-abigail-gown.jpg" alt="BHLDN Abigail Gown" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html"><img src="//static.msromantic.com/242267/bhldn-abigail-gown.jpg" alt="BHLDN Abigail Gown" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html](https://www.antebrands.com/en/bhldn-/93460-bhldn-abigail-gown.html)
