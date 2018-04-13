@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-01-26'
+date: 2017-01-26
 title: "Pronovias EDITH Sleeveless Chapel Train Sheath/Column"
 category: Pronovias
 tags: [Pronovias,Sheath/Column,Sweetheart,Chapel Train,Sleeveless]

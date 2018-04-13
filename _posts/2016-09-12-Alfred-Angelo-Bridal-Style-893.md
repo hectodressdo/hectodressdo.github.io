@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-09-12'
+date: 2016-09-12
 title: "Alfred Angelo Bridal Style 893"
 category: Alfred Angelo
 tags: [Alfred Angelo]
